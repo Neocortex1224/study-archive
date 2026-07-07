@@ -1,3 +1,3 @@
-This log started on **July 8th**\n 
+This log started on **July 8th** 
 #Week 1
 
